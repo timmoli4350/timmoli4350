@@ -1,4 +1,4 @@
 ☾ ⋆*･ﾟ:⋆*･ﾟ ----------------------------------------------------------------------- 
 
-AP CSA & Programming/Electrical @ FRC 5895
+AP CSA @ The Peddie School & Programming/Electrical @ FRC 5895
 
